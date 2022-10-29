@@ -1,0 +1,5 @@
+- I’m @asleepbao, aka Bao Anh Rinne.
+- I am the epitome of 'i'm only here for class'.
+- For a formal introduction, I am a Cognitive and Behavioral Neuroscience major from UC San Diego. 
+- I plan to work in pharmacology research in the future, although much can change.
+- I am a novice coder, and will likely post very little.
